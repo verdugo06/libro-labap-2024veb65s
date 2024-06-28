@@ -1,1 +1,0 @@
-# libro-labap-2024veb65s
